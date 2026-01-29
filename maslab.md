@@ -1,3 +1,4 @@
+![raisebot](https://github.com/user-attachments/assets/9047dc27-45df-4db3-8d59-3658a2138f66)
 
 
 https://github.com/user-attachments/assets/73975423-d9b9-48d8-a159-c1f51ab9e852
